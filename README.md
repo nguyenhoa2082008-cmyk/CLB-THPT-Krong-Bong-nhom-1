@@ -1,1 +1,1 @@
-# CLB-THPT-Krong-Bong-nhom-1
+# CLB-THPT-Krong-Bong-nhom1
